@@ -6,7 +6,7 @@ Do not try to argue with irresponsible reviewer if the editor does not obviously
 Better the journal, less the justice. 
 They will dedicate their life to find out one reference you missed, even though it is no competitive at all,
 and use it as an example to argue you that billions state-of-the-arts are missed.
-Then the editor will do the same thing just to maintain their dignity.
+Then the editor will do the same thing for their dignity.
 
 Not SPL, SPL is the best.
 
